@@ -112,7 +112,7 @@ Amity University
 
 🌐 Portfolio: https://www.thesahilalam.online/
 
-💼 LinkedIn: [Add your LinkedIn URL]
+💼 LinkedIn: https://www.linkedin.com/in/thesahilalam/
 
 📧 Email: sahilalam7@outlook.com
 
